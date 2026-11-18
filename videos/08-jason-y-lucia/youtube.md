@@ -1,0 +1,34 @@
+# Ficha de YouTube — vídeo 08
+
+**Título:** Jason y Lucía: quiénes son los protagonistas de GTA 6
+
+**Archivo:** `08-jason-y-lucia.mp4` · **Miniatura:** `miniatura.png` · **Subtítulos:** `subtitulos.es.srt`
+
+## Descripción (copiar y pegar)
+
+```
+Jason y Lucía: quiénes son los protagonistas de GTA 6
+
+Todo lo que necesitas saber, explicado en 1:14 minutos y sin rodeos. Separamos lo confirmado de lo que todavía es rumor.
+
+⏱️ CAPÍTULOS
+0:00 Introducción
+0:11 Lucía Caminos
+0:28 Jason Duval
+0:48 Otros nombres del tráiler
+0:58 La gran incógnita
+
+🔔 Suscríbete a Crónicas de Leonida para guías de GTA 6 desde el primer día.
+
+Información recopilada el 18/11/2026 de fuentes públicas (medios especializados que citan a Rockstar y a las tiendas). Algunos datos pueden cambiar con el lanzamiento o con parches.
+
+Canal de fans no oficial. No estamos afiliados a Rockstar Games ni a Take-Two Interactive. Grand Theft Auto y GTA son marcas de sus respectivos propietarios. Ilustraciones, animaciones y música originales.
+
+#gta6lucia #gta6jason #jasonduval
+```
+
+## Etiquetas
+
+```
+gta 6 lucia, gta 6 jason, jason duval, lucia caminos, gta 6 protagonistas, gta 6 historia, gta 6 personajes, gta vi
+```
